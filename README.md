@@ -1,3 +1,1 @@
-This is Jiu,
-Fighting for HK,
-Til I'm the last one
+This is Jiu who never stops fighting
