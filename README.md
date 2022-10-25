@@ -1,1 +1,1 @@
-This is Jiu who never stops fighting
+Codes are supposed for humans
