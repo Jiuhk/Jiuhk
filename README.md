@@ -1,1 +1,1 @@
-Codes are supposed for humans
+Codes are meant for the good of mankind.
